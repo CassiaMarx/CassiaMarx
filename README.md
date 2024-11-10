@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... ciencia da felicidade
 - 💞️ I’m looking to collaborate on ... experiencias
 - 📫 How to reach me ... e-mail ou whats
-- 😄 Pronouns: ... ...
+- 😄 Pronouns: ... ela
 - ⚡ Fun fact: ... gosto de aprender sobre varios assumtos..
 
 <!---
